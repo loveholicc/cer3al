@@ -7,4 +7,4 @@
 
 <h5 align="center">
   
-[rentry wip again](-)ㅤㅤ[sign guestbook](https://airaamikii.123guestbook.com/)
+[rentry](https://rentry.co/ayayayara)ㅤㅤ[sign guestbook](https://airaamikii.123guestbook.com/)
